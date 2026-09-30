@@ -1,4 +1,8 @@
-<img width="736" height="100" alt="image" src="https://github.com/user-attachments/assets/bc60f749-c107-44d3-b233-9f971415d487" />
+The yellow light speaks to me sometimes after death. I can tell it's way more intelligent than anything I can imagine. 
 
-hai i am scribbles , bluudude or haz (hazzy!) !! and i really like doors <33
+
+
+<img width="30" height="30" alt="image" src="https://github.com/user-attachments/assets/bf1f2898-fd20-4358-9d9c-0945ec970ea5" />
+What is this binding of papers that you carry on your body? Do you really struggle with rembering things so much that you have to write information down in your primitive language? Hmm... Humans are strange.
+
 
