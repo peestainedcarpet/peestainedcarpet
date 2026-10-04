@@ -1,7 +1,7 @@
 **The yellow light speaks to me sometimes after death. I can tell it's way more intelligent than anything I can imagine.**
 
 
-<img width="2048" height="163" alt="image" src="https://github.com/user-attachments/assets/ef83f513-ed18-4f14-bc74-879889cf1ea9" />
+.~
 
 
 
